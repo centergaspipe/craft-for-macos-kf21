@@ -1,4 +1,4 @@
-
+Get the ultimate Craft for macOS plugin with best Craft for macOS Plugin | goal tracking + quick search. Featuring goal tracking and quick search, it's the best choice for macOS
 
 
 
